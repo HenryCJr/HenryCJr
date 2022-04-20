@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @HenryCJr
+- 👀 I’m interested in be my best version;
+- 🌱 I’m currently learning many languages, like C#, C++ and others;
+- 💞️ I’m looking to collaborate on community;
+- 📫 How to reach me: +55(13)99671-2113 or follow-me in Instagram: @FHCJr;
+- Follow me in Instagram, don't in a street. Long story...
