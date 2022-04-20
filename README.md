@@ -3,4 +3,5 @@
 - 🌱 I’m currently learning many languages, like C#, C++ and others;
 - 💞️ I’m looking to collaborate on community;
 - 📫 How to reach me: +55(13)99671-2113 or follow-me in Instagram: @FHCJr;
+- Fatec studente, artist, programmer, musician, writer, designer 2D, 3D and your new friend;
 - Follow me in Instagram, don't in a street. Long story...
