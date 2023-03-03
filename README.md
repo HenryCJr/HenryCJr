@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Fábio;
 - 👀 I’m interested in be my best version;
-- 🌱 I’m currently learning many languages, like C#, C++ and others;
+- 🌱 I’m currently work with many languages, like C#, Java, C++ and others;
 - 💞️ I’m looking to collaborate on community;
 - 📫 How to reach me: jr@ciminos.com.br or follow-me in Instagram: @FHCJr;
 - Fatec studente, artist, programmer, musician, writer, designer 2D, 3D and your new friend;
